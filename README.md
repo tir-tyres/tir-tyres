@@ -2,8 +2,8 @@
 
 #
 <details>
-  <summary>I think it's lying to me</summary>
-  <p>was i right now</p>
+  <summary>click here trust</summary>
+  <p><img width="450" height="400" alt="legged" src="https://github.com/user-attachments/assets/6f1dfff1-485a-474a-a97c-d597bd9dbede" />  </p>
 </details>
 
 the legged one 
