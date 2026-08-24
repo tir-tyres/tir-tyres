@@ -7,6 +7,7 @@
 ![4019b3cd28c55](https://github.com/user-attachments/assets/021eb644-df00-4f32-af39-53187c953d71)
 
 #
+<p align="center">check pinned rep if yw for more info..</p>
 <sub><sup>someone tell me what to put here..</sup></sub>
 <details>
   <summary>click here trust</summary>
