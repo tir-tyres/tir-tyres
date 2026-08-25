@@ -2,7 +2,7 @@
 
 ---
 $${\color{blue}𝒄𝒐ol𝒇𝒐𝒍𝒌𝒔!!1 }$$
-┈➤ @SukiiChu @partipoisun @IX9I @vivathesonicexefan
+┈➤ [@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I) [@vivathesonicexefan](https://github.com/vivathesonicexefan) 
 
 ---
 
