@@ -1,4 +1,7 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Righteous&pause=1000&width=435&lines=Waves..;Hello+fellow+github+lurkers!!1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Righteous&pause=1000&width=435&lines=Waves..;Hello+fellow+github+lurkers!!1)](https://git.io/typing-svg)  
+
+$${\color{blue}ＣＯＯＬ ＰＰＬ!!1 }$$  
+╰┈➤ @SukiiChu @partipoisun @IX9I @vivathesonicexefan
 
 <sub><sup>space filler warning</sup></sub>
 
