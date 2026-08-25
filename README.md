@@ -3,7 +3,7 @@
 <sub><sup>it's still a wip and im constatnly updating..</sup></sub>
 
 ---
-$${\color{blue}𝒄𝒐ol𝒇𝒐𝒍𝒌𝒔!!1 }$$
+$${\color{blue}𝒄𝒐ol-𝒇𝒐𝒍𝒌𝒔-𝐚𝐧𝐝-𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
 ┈➤ [@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I) [@vivathesonicexefan](https://github.com/vivathesonicexefan) 
 
 ![](https://komarev.com/ghpvc/?username=tir-tyres&label=ᴄᴜʀɪᴏᴜs-ꜰᴏʟᴋs-_->&style=plastic)
