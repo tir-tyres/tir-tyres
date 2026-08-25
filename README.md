@@ -1,16 +1,15 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Righteous&pause=1000&width=435&lines=Waves..;Hello+fellow+github+lurkers!!1)](https://git.io/typing-svg)  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Alfa+Slab+One&pause=1000&color=34BFF7&background=1DFAFF7E&width=435&lines=Waves..;Hello+fellow+github+lurkers!!1)](https://git.io/typing-svg)
 
-$${\color{blue}ＣＯＯＬ ＰＰＬ!!1 }$$  
-╰┈➤ @SukiiChu @partipoisun @IX9I @vivathesonicexefan
-
-<sub><sup>space filler warning</sup></sub>
+---
+$${\color{blue}𝒄𝒐ol𝒇𝒐𝒍𝒌𝒔!!1 }$$
+┈➤ @SukiiChu @partipoisun @IX9I @vivathesonicexefan
 
 ---
 
 ![4019b3cd28c55](https://github.com/user-attachments/assets/021eb644-df00-4f32-af39-53187c953d71)
 
 #
-<p align="center">check pinned rep if yw for more info..</p>
+<p align="center">ᴄʜᴇᴄᴋ ᴘɪɴɴᴇᴅ ʀᴇᴘ ɪꜰ ʏᴡ ᴍᴏʀᴇ ɪɴꜰᴏ ɪᴅᴋ..</p>
 <sub><sup>someone tell me what to put here..</sup></sub>
 <details>
   <summary>click here trust</summary>
