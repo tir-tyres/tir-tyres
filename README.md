@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Alfa+Slab+One&pause=1000&color=34BFF7&background=1DFAFF7E&width=435&lines=Waves..;Hello+fellow+github+lurkers!!1)](https://git.io/typing-svg)
 
-<sub><sup>it's still a wip and im constatnly updating..</sup></sub>
+<sub><sup>it's still a wip and im NOT constatnly updating..</sup></sub>
 
 ---
 $${\color{blue}𝒄𝒐ol-𝒇𝒐𝒍𝒌𝒔-𝐚𝐧𝐝-𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
