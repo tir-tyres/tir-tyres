@@ -25,11 +25,6 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
 <sub><sup>github ate my profile view counter only the wing is left woah</sup></sub>  
 
 
-<details>
-  <summary>click here trust</summary>
-  <p> the legged one <img width="450" height="400" alt="legged" src="https://github.com/user-attachments/assets/6f1dfff1-485a-474a-a97c-d597bd9dbede" />  </p>
-</details>
-
 <img width="250" height="20" alt="kosiarka" src="https://github.com/user-attachments/assets/697bf62f-857a-4d69-bf13-b9fafbd05200" />
 
 <details>
