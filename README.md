@@ -6,7 +6,7 @@ $${\color{lightblue}it's still a wip / best viewed on desktop }$$
 
 <img width="900" height="245" alt="digicamfx-smartBlur-2026-10-17T13-32-14" src="https://github.com/user-attachments/assets/aa521c3a-ce91-4a8d-be33-178294afba6d" />   
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Oh+beautiful+skies+rising+above+us;to+be+one+with+you%2C+to+move+with+lightness+and+grace+among+the+white+clouds)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Im+going+so+insane;English+is+probably+not+the+most+poetic+language)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Oh+beautiful+skies+rising+above+us;to+be+one+with+you%2C+to+move+with+lightness+and+grace+among+the+white+clouds)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Im+going+so+insane;English+is+not+the+most+poetic+language)](https://git.io/typing-svg)
 
 <img width="900" height="7" alt="blue line divider" src="https://github.com/user-attachments/assets/e0bc2a7d-95dc-4bbb-95e0-df7b48aa203a" />
 
