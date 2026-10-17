@@ -14,7 +14,7 @@ $${\color{lightblue}it's still a wip /  best  viewed  on  desktop�
 <img width="900" height="40" alt="fallin hearts" src="https://github.com/user-attachments/assets/b401e5d5-1dcf-4f73-9996-6187e573f6ae" />
 
 $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
- [@vivathesonicexefan](https://github.com/vivathesonicexefan)[@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I)  <img width="20" height="20" alt="appy vlue cat emot" src="https://github.com/user-attachments/assets/14315d42-ca3a-4fdc-92df-c6ec48e25f50" />
+ [@vivathesonicexefan](https://github.com/vivathesonicexefan) [@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I)  <img width="20" height="20" alt="appy vlue cat emot" src="https://github.com/user-attachments/assets/14315d42-ca3a-4fdc-92df-c6ec48e25f50" />
 
 <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> ![#87CEFA](https://placehold.co/15x15/87CEFA/87CEFA.png) `#87CEFA`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
 ![#00BFFF](https://placehold.co/15x15/00BFFF/00BFFF.png) `#00BFFF`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
