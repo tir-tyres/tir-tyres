@@ -16,7 +16,9 @@ $${\color{lightblue}it's still a wip /  best  viewed  on  desktop�
 $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
 ┈➤ [@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I) [@vivathesonicexefan](https://github.com/vivathesonicexefan) <img width="20" height="20" alt="appy vlue cat emot" src="https://github.com/user-attachments/assets/14315d42-ca3a-4fdc-92df-c6ec48e25f50" />
 
-
+<img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> ![#87CEFA](https://placehold.co/15x15/87CEFA/87CEFA.png) `#87CEFA`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
+![#00BFFF](https://placehold.co/15x15/00BFFF/00BFFF.png) `#00BFFF`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
+![#00667f](https://placehold.co/15x15/00667f/00667f.png) `#00667f` <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> 
 
 ![](https://komarev.com/ghpvc/?username=tir-tyres&label=ᴄᴜʀɪᴏᴜs-ꜰᴏʟᴋs-_->&style=plastic&abbreviated=true)<img width="26" height="21" alt="wing emot" src="https://github.com/user-attachments/assets/83ab98b1-9e3c-4d51-b8db-361c6fd6a4a8" />
 
