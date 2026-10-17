@@ -4,7 +4,7 @@
 
 $${\color{lightblue}it's still a wip and im NOT constatnly updating.. }$$
 
-<img width="450" height="245" alt="digicamfx-smartBlur-2026-10-17T13-32-14" src="https://github.com/user-attachments/assets/aa521c3a-ce91-4a8d-be33-178294afba6d" />   <img width="450" height="245" alt="digicamfx-smartBlur-2026-10-17T13-33-55" src="https://github.com/user-attachments/assets/f3f3272a-3b92-4d1e-9723-95ef4e3c95da" />
+<img width="200" height="245" alt="digicamfx-smartBlur-2026-10-17T13-32-14" src="https://github.com/user-attachments/assets/aa521c3a-ce91-4a8d-be33-178294afba6d" />   <img width="200" height="245" alt="digicamfx-smartBlur-2026-10-17T13-33-55" src="https://github.com/user-attachments/assets/f3f3272a-3b92-4d1e-9723-95ef4e3c95da" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Oh+beautiful+skies+rising+above+us;to+be+one+with+you%2C+to+move+with+lightness+and+grace+among+the+white+clouds)](https://git.io/typing-svg)
 
