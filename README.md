@@ -12,7 +12,7 @@ $${\color{lightblue}it's still a wip /  best  viewed  on  desktop�
 
 ---
 
-<img width="900" height="42" alt="fallin hearts" src="https://github.com/user-attachments/assets/b401e5d5-1dcf-4f73-9996-6187e573f6ae" />
+<img width="900" height="40" alt="fallin hearts" src="https://github.com/user-attachments/assets/b401e5d5-1dcf-4f73-9996-6187e573f6ae" />
 
 $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
 ┈➤ [@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I) [@vivathesonicexefan](https://github.com/vivathesonicexefan) 
@@ -30,6 +30,14 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
 <details>
   <summary>click here trust</summary>
   <p> the legged one <img width="450" height="400" alt="legged" src="https://github.com/user-attachments/assets/6f1dfff1-485a-474a-a97c-d597bd9dbede" />  </p>
+</details>
+
+<img width="250" height="20" alt="kosiarka" src="https://github.com/user-attachments/assets/697bf62f-857a-4d69-bf13-b9fafbd05200" />
+
+<details>
+  <summary>lazy man</summary>
+  <p>  <img width="20" height="20" alt="green spiral emot" src="https://github.com/user-attachments/assets/9ebc823b-e7c7-4cba-95a0-4b984192eb60" />greed make damn github you lazybum<img width="20" height="20" alt="green spiral emot" src="https://github.com/user-attachments/assets/9ebc823b-e7c7-4cba-95a0-4b984192eb60" />
+ </p>
 </details>
 
 
