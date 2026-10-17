@@ -10,6 +10,8 @@ $${\color{lightblue}it's still a wip /  best  viewed  on  desktop�
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Oh+beautiful+skies+rising+above+us;to+be+one+with+you%2C+to+move+with+lightness+and+grace+among+the+white+clouds)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sassy+Frass&pause=1000&color=77A9F7&multiline=true&width=435&lines=Im+going+so+insane;English+is+not+the+most+poetic+language)](https://git.io/typing-svg)
 
+---
+
 <img width="900" height="42" alt="fallin hearts" src="https://github.com/user-attachments/assets/b401e5d5-1dcf-4f73-9996-6187e573f6ae" />
 
 $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
@@ -20,8 +22,8 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
 
 
 
-#
-<p align="center">ᴄʜᴇᴄᴋ ᴘɪɴɴᴇᴅ ʀᴇᴘ ɪꜰ ʏᴡ ᴍᴏʀᴇ ɪɴꜰᴏ ɪᴅᴋ..</p>
+
+<p align="center"></p>
 <sub><sup>someone tell me what to put here..  </sup></sub>  
 
 
