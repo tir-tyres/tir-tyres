@@ -34,5 +34,4 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
   <p>  <img width="20" height="20" alt="green spiral emot" src="https://github.com/user-attachments/assets/9ebc823b-e7c7-4cba-95a0-4b984192eb60" />greed make damn github you lazybum<img width="20" height="20" alt="green spiral emot" src="https://github.com/user-attachments/assets/9ebc823b-e7c7-4cba-95a0-4b984192eb60" />
  </p>
 </details>
-$${\color{lightgreen}Light \space Green}$$
 
