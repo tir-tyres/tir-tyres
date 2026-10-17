@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=A8C7F7&multiline=true&width=435&lines=Isn't+the+sky+always..;so+spectacular..%3F.+.)](https://git.io/typing-svg)
 
-$${\color{lightblue}it's still a wip /  best  viewed  on  desktop }$$
+$${\color{lightblue}it's still a wip /  best  viewed  on  desktop and light mode! }$$
 
 <img width="900" height="245" alt="digicamfx-pg2016-2026-10-17T13-56-16" src="https://github.com/user-attachments/assets/a4596095-8acf-4d36-979f-03b01d9c9438" />
 
