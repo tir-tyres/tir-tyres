@@ -21,6 +21,8 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
 <img width="900" height="245<img width="736" height="490" alt="digicamfx-original-2026-10-18T16-12-09" src="https://github.com/user-attachments/assets/324b0d00-914b-46a5-84c4-4146c75d238e" />
 <img width="900" height="245" alt="digicamfx-original-2026-10-18T13-15-17" src="https://github.com/user-attachments/assets/8cf25912-5ddc-416c-a5f5-acd3b6584902" />
 
+<img width="900" height="50" alt="clouds" src="https://github.com/user-attachments/assets/85a96190-db73-4930-9a41-e050db6338fe" />
+
 <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> ![#87CEFA](https://placehold.co/15x15/87CEFA/87CEFA.png) `#87CEFA`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
 ![#00BFFF](https://placehold.co/15x15/00BFFF/00BFFF.png) `#00BFFF`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
 ![#00667f](https://placehold.co/15x15/00667f/00667f.png) `#00667f` <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> 
@@ -39,3 +41,4 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
  
 </details>
 
+<img width="900" height="50" alt="clouds" src="https://github.com/user-attachments/assets/85a96190-db73-4930-9a41-e050db6338fe" />
