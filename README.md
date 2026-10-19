@@ -16,6 +16,11 @@ $${\color{lightblue}it's still a wip /  best  viewed  on  desktop�
 $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨𝐨𝐤𝐬!!𝟏 }$$
  [@vivathesonicexefan](https://github.com/vivathesonicexefan) [@SukiiChu](https://github.com/SukiiChu) [@partipoisun](https://github.com/partipoisun) [@IX9I](https://github.com/IX9I)  <img width="20" height="20" alt="appy vlue cat emot" src="https://github.com/user-attachments/assets/14315d42-ca3a-4fdc-92df-c6ec48e25f50" />
 
+
+<img width="900" height="40" alt="web broswer" src="https://github.com/user-attachments/assets/a3f1b6bb-b54e-4e16-b52a-3111b0aebbef" />
+<img width="900" height="245<img width="736" height="490" alt="digicamfx-original-2026-10-18T16-12-09" src="https://github.com/user-attachments/assets/324b0d00-914b-46a5-84c4-4146c75d238e" />
+<img width="900" height="245" alt="digicamfx-original-2026-10-18T13-15-17" src="https://github.com/user-attachments/assets/8cf25912-5ddc-416c-a5f5-acd3b6584902" />
+
 <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> ![#87CEFA](https://placehold.co/15x15/87CEFA/87CEFA.png) `#87CEFA`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
 ![#00BFFF](https://placehold.co/15x15/00BFFF/00BFFF.png) `#00BFFF`  <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" />
 ![#00667f](https://placehold.co/15x15/00667f/00667f.png) `#00667f` <img width="20" height="20" alt="blue hear 1" src="https://github.com/user-attachments/assets/f13e1b1d-bc5d-4dca-b449-882518aa3bbd" /> 
@@ -24,7 +29,7 @@ $${\color{lightblue}𝒄𝒐ol 𝒇𝒐𝒍𝒌𝒔 𝐚𝐧𝐝 𝐩𝐨�
 
 
 <p align="center"></p>
-<sub><sup>github ate my profile view counter only the wing is left woah</sup></sub></p> 
+<sub><sup>github got some beef with them counters huh</sup></sub></p> 
 
 <details>
   <summary>lazy man</summary>
